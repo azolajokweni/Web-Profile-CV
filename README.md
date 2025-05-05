@@ -1,1 +1,1 @@
-# This is Azola's Website consisting of his portfolio and CV
+# This is Azola Jokweni's Website consisting of his portfolio and CV
